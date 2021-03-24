@@ -1,1 +1,7 @@
 # frontend-task
+
+ARTHI B
+
+1832009
+
+M.Sc. INTEGRATED DATASCIENCE
